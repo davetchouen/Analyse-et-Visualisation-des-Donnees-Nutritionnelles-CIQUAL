@@ -116,7 +116,7 @@ Ces graphes permettent de visualiser la **corrélation potentielle entre teneur 
 ## 🙋🏽‍♂️ Contact
 
 Pour toute question ou suggestion :  
-📧 tchouenkou.david.nathanael@email.com  
+📧 davetchouenkou9@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/tonprofil) *(à personnaliser)*
 
 ---
